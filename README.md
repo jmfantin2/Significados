@@ -27,7 +27,7 @@ Qualquer coisa diferente disso é praticamente inútil, afinal a jornada de cada
 
 Quando se compreende isso e, ao mesmo tempo, há uma busca por melhores condições de vida, não é surpresa perceber uma evolução, após certos períodos de tempo. E isso não quer dizer que perdas não foram sofridas; é tudo uma questão de saldo.
 
-Esteja preparado para perder coisas, e tenha sempre em mente que essa é a premissa principal para que outras de maior valor se encaixem nas lacunas que surgiram.
+Esteja preparado para perder coisas, e tenha sempre em mente que essa é a premissa principal para que outras de maior valor se encaixem nas lacunas que terão surgido.
 
 #### 4. Ninguém jamais valorizará seu tempo mais do que você mesmo.
 
