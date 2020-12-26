@@ -39,7 +39,7 @@ Entenda suas limitações e saiba dizer não quando necessário; caso contrário
 
 #### 5. A mente enfraquece sem um bom corpo, e o corpo é inútil sem uma boa mente.
 
-Historicamente falando, faz pouco tempo que habitamos espaços onde é terceirizada a necessidade de se defender de determinados perigos contra a vida, apesar destes ainda existirem sob ótica contemporânea. Em questão de alguns milhares de anos atrás a capacidade de ter um bom corpo estava diretamente relacionada à ideia de proteção e segurança própria. É seguro supor que essas conexões ainda existem no nosso cérebro, apesar da Grande Descentralização das necessidades humanas.
+Historicamente falando, faz pouco tempo que habitamos espaços onde é terceirizada a necessidade de se defender de determinados perigos contra a vida, apesar de ainda existirem sob ótica contemporânea. Em questão de alguns milhares de anos atrás a capacidade de ter um bom corpo estava diretamente relacionada à ideia de proteção e segurança própria. É seguro supor que essas conexões ainda existem no nosso cérebro, apesar da Grande Descentralização das necessidades humanas.
 
 Sem um equilíbrio entre mente e corpo, estamos jogando contra nossa própria fisiologia. Fica difícil fazer o barco andar se a âncora não tá recolhida.
 
