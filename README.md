@@ -19,7 +19,7 @@ Muito me torturei mentalmente por não conseguir implementar grandes mudanças d
 
 Em outras palavras, nossa própria natureza é condicionada a operar em hábitos forjados através de longas passagens de tempo - daí o embate em tentar implementar mudanças significativas em um período de tempo simples, como a transição de um dia para o outro, e se decepcionar com o não cumprimento da expectativa.
 
-Pensar em mudanças para um mês ou um ano adiante pode ocasionar melhores resultados.
+Pensar em mudanças para um mês ou um ano adiante pode ocasionar melhores resultados do que os que se imaginam para o dia seguinte. Se tu realmente quiser isso, uma hora tua cabeça vai te fazer levantar do sofá e começar o que quer que seja, ao menos em uma folha de papel.
 
 #### 3. Quando for se comparar a alguém, faça-o com seu eu do passado.
 
