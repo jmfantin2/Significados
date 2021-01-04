@@ -1,7 +1,7 @@
 # Significados
-Journaling retrospectivo anual.
+Journaling retrospectivo anual. 
 
-TOTAIS: 5 aprendizados / 3 livros
+`TOTAIS: 5 aprendizados / 3 obras lidas`
 
 ## 2020
 
