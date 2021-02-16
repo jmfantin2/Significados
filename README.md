@@ -1,7 +1,7 @@
 # Significados
 Journaling retrospectivo anual. 
 
-`TOTAIS: 5 aprendizados / 3 obras lidas`
+`TOTAIS: 5 aprendizados / 2 obras lidas`
 
 ## 2020
 
@@ -48,7 +48,5 @@ Sem um equilíbrio entre mente e corpo, estamos jogando contra nossa própria fi
 > **The Magic Ladder to Success** (Napoleon Hill)
 
 > **Seven Spiritual Laws to Success** (Deepak Chopra)
-
-> **A Startup Enxuta** (Eric Ries)
 
 > **Ego e Arquétipo** (Edward Edinger)
